@@ -2,4 +2,4 @@ https://www.virustotal.com/gui/file/81198cb37c59a88f2475043a7e49cd2917cf42376e8e
 https://tria.ge/241126-va5fmszlbw/behavioral1 Triage 
 
 
-I used Chat-Gtp i did not make this LOL
+Skibidi toilet
